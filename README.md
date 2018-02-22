@@ -1,2 +1,1 @@
-# Kristina-Avsievich
-# Kristina-Avsievich
+# Kursach
